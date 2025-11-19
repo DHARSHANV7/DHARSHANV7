@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @DHARSHANV7
-- 👀 I’m interested in Innovation,Dance,Singing 
-- 🌱 I’m currently learning B.TECH AI&ML
-- 💞️ I’m looking to collaborate on Company 
-- 📫 How to reach me Instagram: dharshan_ig_ , Gmail: dharshan207v@gmail.com
